@@ -1,4 +1,6 @@
 # gvantsa
 test1
 axali test
-dfkjhg.kjhm
+dzveli texti
+cvlileba
+
